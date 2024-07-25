@@ -1,2 +1,2 @@
 # arya
-ganteng jir
+ganteng jir wkwk
